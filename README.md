@@ -1,9 +1,14 @@
-So, get away
-Another way to feel what you didn't want yourself to know
-And let yourself go
-You know you didn't lose your self-control
-Let's start at the rainbow
-Turn away
-Another way to be where you didn't want yourself to go
-And let yourself go
-Is that a compromise?
+i like everything that's blue --blue, boywithuke
+
+i cant dec on my favourite so uh heres some more
+
+"and bring out a poisoned tongue or plastic crown but for me they look the same" --stop the rain, ed sheeran
+"on cold days, cold plays out like the band’s name" --drunk, ed sheeran
+"if i was born as a blackthorn tree, i’d wanna be felled by you, held by you, fuel the pyre of your enemies" --nfwmb, hozier
+"cus we made it so far, i dont wanna restart, recollecting these sparks, reconnecting these wires" --scared of the dark, bwu
+"please don't run away from me / i got chicken wings fried in canola oil to bring" --animal crackers, bwu
+"and i hate to do this to you on your birthday; happy birthday, by the way" --party favor, billie
+"flying to the sun to take a glimpse of the moon" --me
+
+
+and everything from haha hi, boywithuke and lovely (billie eyelash)
