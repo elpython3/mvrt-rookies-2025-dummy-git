@@ -1,9 +1,14 @@
-So, get away
-Another way to feel what you didn't want yourself to know
-And let yourself go
-You know you didn't lose your self-control
-Let's start at the rainbow
-Turn away
-Another way to be where you didn't want yourself to go
-And let yourself go
-Is that a compromise?
+Na-na-na, na-na-gnarly (gnarly)
+Na-na-na, na-na-gnarly (gnarly)
+Na-na-na, na-na-gnarly (gnarly)
+Everything's gnarly
+Hottie, hottie, like a bag of Takis
+I'm the shit, I'm the shit (gnarly)
+Obvi', obvi', they be tryna copy
+I'm the shit, I'm the shit
+Na-na-na, na-na-gnarly (gnarly)
+Na-na-na, na-na-gnarly
+I'm the shit, I'm the shit
+Na-na-na, na-na-gnarly (gnarly)
+Na-na-na, na-na-gnarly
+I'm the shit, I'm the shit
