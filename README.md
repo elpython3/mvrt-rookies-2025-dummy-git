@@ -1,9 +1,16 @@
-So, get away
-Another way to feel what you didn't want yourself to know
-And let yourself go
-You know you didn't lose your self-control
-Let's start at the rainbow
-Turn away
-Another way to be where you didn't want yourself to go
-And let yourself go
-Is that a compromise?
+I'll go M.I.A
+I-I'ma go, go
+I'll go M.I.A
+Solo in SoHo
+I'll go M.I.A
+Say, where she go, go?
+Nobody knows
+Don't get comfortable, 'cause any minute now
+M.I, M.I.A
+M.I, M.I.A (I'll go M.I.A)
+M.I, M.I.A (I'll go, go)
+M.I, M.I.A
+M.I.A
+I'ma, I'ma go M.I.A
+I'ma, I'ma go M.I.A
+I'ma, I'ma go M.I.A
